@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **Java, C#**
 
-- 📫 How to reach me **DuongNT21@gmail.com (1-2 days to respond)**
+- 📫 How to reach me **Ngotungduong121@gmail.com (1-2 days to respond)**
 
 <h3 align="center">Connect with me:</h3>
 <p align="center">
